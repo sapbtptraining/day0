@@ -39,4 +39,4 @@ https://www.postman.com/downloads/
 # warm-up!🏌️‍♀️
 https://www.youtube.com/watch?v=w4KDYB4QXxE
 
-https://www.youtube.com/watch?v=XdCpCkh4vjg
+https://www.youtube.com/watch?v=TJzQ18jUUhA
